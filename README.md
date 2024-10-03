@@ -1,0 +1,1 @@
+# ukfIG2-ukfIG2_Koncepty_po-ta-ovej_bezpe-nosti-PHISHING_STRANKA
